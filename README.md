@@ -17,7 +17,7 @@
 
 [**Wiki**](Coming Soon)
 
-[**Discord**](https://discord.gg/0keg6hQH05Ha8OfO)
+[**Discord**](https://discord.gg/3hsqwZp34u)
 
 [**AudaxStation GitHub Guidelines**](WIP)
 
